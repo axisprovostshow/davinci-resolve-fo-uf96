@@ -1,4 +1,4 @@
-# 
+# professional DaVinci Resolve for macOS Filter | collaboration-tools + green-screen-removal offers the most advanced DaVinci Resolve for macOS filter, with collaboration-tools and
 
 
 
